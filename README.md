@@ -1,1 +1,16 @@
-# JDC
+https://fq.lonxin.net/clash/proxies
+https://free886.herokuapp.com/clash/proxies
+https://proxypoolss.fly.dev/clash/proxies
+http://wxshi.top:9090/clash/proxies
+https://dl.zjzj.xyz/clash/proxies
+http://42.194.196.226/clash/proxies
+https://ednovas.design/clash/proxies
+https://klausvpn.posyao.com/clash/proxies
+https://cha1.tk/clash/proxies
+https://proxies.bihai.cf/clash/proxies
+https://free.dswang.ga/clash/proxies
+https://sspool.herokuapp.com/clash/proxies
+https://origamiboy.herokuapp.com/clash/proxies
+https://hellopool.herokuapp.com/clash/proxies
+https://us-proxypool.herokuapp.com/clash/proxies
+https://hk.xhrzg2017.xyz/clash/proxies
